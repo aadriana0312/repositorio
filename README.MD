@@ -9,6 +9,7 @@
  ![alt text](https://m.media-amazon.com/images/I/81p6nHmmNaL._SL1500_.jpg)
 
 * A lâmina da assassina
+
 ![alt text](https://m.media-amazon.com/images/I/81wVMTuT5rL._SY385_.jpg)
 
 * Trono de vidro
