@@ -6,24 +6,25 @@
 :stuck_out_tongue_winking_eye:	curiosidade sobre mim:
  ### meu top8 livros favoritos são da mesma autora e a mesma série de livros
 
- ![alt text](image.png)
+ ![alt text](https://m.media-amazon.com/images/I/81p6nHmmNaL._SL1500_.jpg)
+
 * A lâmina da assassina
-![alt text](image-1.png)
+![alt text](https://m.media-amazon.com/images/I/81wVMTuT5rL._SY385_.jpg)
 
 * Trono de vidro
-![alt text](image-2.png)
+![alt text](https://m.media-amazon.com/images/I/81pMMF9WnmL._SL1500_.jpg)
 
 * Coroa da meia-noite
-![alt text](image-3.png)
+![alt text](https://m.media-amazon.com/images/I/81xOkcOAbML._SL1500_.jpg)
 
 * Herdeira do fogo
-![alt text](image-4.png)
+![alt text](https://m.media-amazon.com/images/I/71W8HtpI-NL._SL1500_.jpg)
 
 * Rainha das sombras
-![alt text](image-5.png)
+![alt text](https://m.media-amazon.com/images/I/81JE8uJ+dsL._SL1500_.jpg)
 
 * Império de tempestades
-![alt text](image-6.png)
+![alt text](https://m.media-amazon.com/images/I/817UYUH2v5L._SL1500_.jpg)
 
 * Torre do alvorecer
 ![alt text](https://m.media-amazon.com/images/I/81SD36Ae9FL._SL1500_.jpg)
