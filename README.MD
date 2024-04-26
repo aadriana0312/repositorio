@@ -26,7 +26,7 @@
 ![alt text](image-6.png)
 
 * Torre do alvorecer
-![alt text](image-7.png)
+![alt text](https://m.media-amazon.com/images/I/81SD36Ae9FL._SL1500_.jpg)
 
 * Reino das cinzas
-![alt text](image-8.png)
+![alt text](https://m.media-amazon.com/images/I/81Gcf9U9trL._SL1500_.jpg)
