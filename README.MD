@@ -32,3 +32,4 @@
 
 * Reino das cinzas
 ![alt text](https://m.media-amazon.com/images/I/81Gcf9U9trL._SL1500_.jpg)
+# se alguém quiser comprar para mim, faz o pix no valor de: R$815,00
